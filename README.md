@@ -1,6 +1,5 @@
 ![image](https://github.com/justDipper/justDipper/assets/160532876/a4c5f368-561d-4f14-8715-c6c782e85a52)
 
-https://www.deviantart.com/itsmeruttu/art/Gravity-Falls-Facebook-Cover-340452847
 <h1>I'm Dipper Pines👋</h1>
 <p>I'm currently learning and capable of adapting new things👾</p>
 <br>
